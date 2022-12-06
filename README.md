@@ -4,7 +4,6 @@
 
 - 📫 How to reach me **gustavoosampaio95@gmail.com | https://www.linkedin.com/in/gustavosampaiodata/**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
