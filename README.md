@@ -2,7 +2,7 @@
 
 - I’m looking to collaborate on **Data Projects**
 
-- 📫 How to reach me **gustavoosampaio95@gmail.com | https://www.linkedin.com/in/gustavosampaiodata/**
+- 📫 How to reach me **gustavoosampaio95@gmail.com | https://www.linkedin.com/in/gustavosampaiodata**
 
 <p align="left">
 </p>
